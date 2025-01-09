@@ -1,0 +1,1 @@
+# Wahyu-UAS-kecerdasan-buatan
